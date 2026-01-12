@@ -1,7 +1,7 @@
-Ravi loved selling mangoes from the tree in his backyard. He set up a small stall every morning and waited for customers with a smile.
+On a rainy day, a little puppy named Coco got lost in the market. He was cold and scared.
 
-One day, a man in a hurry bought some mangoes and accidentally dropped his wallet near the stall. Ravi noticed it after the man had left.
+Arjun, a kind boy, found Coco hiding near a shop. He fed him biscuits and took him home. Arjun made posters with Coco’s picture and put them up everywhere.
 
-Instead of keeping the wallet, Ravi ran after the man and returned it. The man was so thankful that he came back the next day with his whole family to buy more mangoes.
+Two days later, Coco’s family saw the poster and came to get him. They thanked Arjun and told him he could visit Coco anytime. Arjun was happy to make a new friend.
 
-From then on, Ravi’s honesty became famous in his town, and more people came to buy his fruits.
+Moral: Helping others creates new friendships.
