@@ -1,7 +1,5 @@
-On a rainy day, a little puppy named Coco got lost in the market. He was cold and scared.
+Mimi, the white cat, loved to sleep all day. She never helped other cats find food and always waited to be fed.
 
-Arjun, a kind boy, found Coco hiding near a shop. He fed him biscuits and took him home. Arjun made posters with Coco’s picture and put them up everywhere.
+One day, all the other cats went away for a picnic, and Mimi was left alone. She became hungry but did not know how to find food herself.
 
-Two days later, Coco’s family saw the poster and came to get him. They thanked Arjun and told him he could visit Coco anytime. Arjun was happy to make a new friend.
-
-Moral: Helping others creates new friendships.
+Mimi realised that being lazy made life harder. From that day on, she started learning new things and helping others.
